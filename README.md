@@ -1,0 +1,1 @@
+# receiptsnap-privacy
